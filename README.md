@@ -2,4 +2,4 @@
 
 Enjoy my work!
 
-thang you.
+thank you.
